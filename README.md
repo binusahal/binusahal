@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @binusahal
-- 👀 I’m interested in tech, specially, i'm passionate in cybersecurity and also i'm senior mobile App Developer
+- 👀 I’m interested in tech, specially, passionate in cybersecurity and also i'm senior mobile App Developer
 - 🌱 I’m currently learning cybersecurity and more in tech..
 - 💞️ I’m looking to collaborate on mobile App Developers 
 - 📫 How to reach me by Email: zahalgithub2020@gmail.com  so you can contact me 
